@@ -40,7 +40,4 @@ Under the following terms:
 
 Full license text: https://creativecommons.org/licenses/by-nc-nd/4.0/legalcode
 
-This preprint is independent research by the TET Collective, Rome, Italy.
-
-❤️♾️ The primordial trefoil knot has forged the elements and the cleanest fusion path.  
-The bootstrap is open — the next experiment awaits.
+This preprint is independent research by the TET Collective, Rome, Italy. 
